@@ -1,2 +1,2 @@
-# Lcumsille.github.io
+# equipoveggo.github.io
 Veggo's page 001
